@@ -1,0 +1,3 @@
+Blog #1: I researched about Virtual Reality and what it is. I am also learning about the benefits as well as disadvantages to what Virtual Reality has.
+
+Blog #2:I am getting my sources for the project from all different sites.Learning about how to code on different sites in class can help me know how to program any new equipment that can enhance the VR experience.I am developing skills outside this project by meeting new people and learning how to work with them.Somne sources include https://thinkmobiles.com/blog/what-is-vr.
